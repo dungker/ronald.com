@@ -1,0 +1,2 @@
+# ronald.com
+Bisnis
